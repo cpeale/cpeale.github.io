@@ -1,1 +1,1 @@
-This will be a personal website
+Charlotte Peale's personal website.
